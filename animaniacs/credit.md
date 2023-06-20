@@ -1,0 +1,1 @@
+https://www.asciiart.eu/cartoons/animaniacs
